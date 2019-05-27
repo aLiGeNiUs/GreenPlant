@@ -7,4 +7,3 @@ to save human and earth we fix any information and locate it geoplace
 الحية الموجودة عليه 
 
 Ali Al-Kazaly علي عاصف (aLi GeNiUs)
-https://plus.google.com/+AliALkazaliaLiGeNiUs
