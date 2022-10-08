@@ -1,3 +1,7 @@
+- 👋 Hi, I’m @aLiGeNiUs
+- 👀 I’m interested in programming & development .
+- 💞️ I’m looking to collaborate on my GreenPlant project to develop app 
+
 # GreenPlant
 share knowledge for keep earth
 
